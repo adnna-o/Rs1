@@ -1,2 +1,0 @@
-# Rs1
-seminarski 
